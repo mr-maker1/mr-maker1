@@ -14,7 +14,7 @@ On the channel, you’ll discover:
 - Tips and tricks for electronics enthusiasts.  
 - Hands-on demonstrations of cutting-edge technology.  
 
-Check it out here: [Mr. Maker on YouTube](https://www.youtube.com/c/MAKEarabic)  
+Check it out here: [Mr. Maker on YouTube](https://www.youtube.com/@MrMakersLab)  
 
 ---
 
